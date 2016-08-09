@@ -1,4 +1,4 @@
 # hello-world-record
 recording everyday learning methods
 
-![item](http://fc07.deviantart.com/fs40/f/2009/009/9/f/Joker____by_AlanRodriguez.jpg)
+![item](http://img4.duitang.com/uploads/blog/201403/10/20140310101315_iniQr.jpeg)
